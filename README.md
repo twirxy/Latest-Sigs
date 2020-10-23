@@ -1,3 +1,3 @@
 # Latest-Sigs
 FORTNITE LATEST SIGS
-http://gg.gg/CalculateProjectionMatrixGivenView
+https://direct-link.net/169142/sigs
